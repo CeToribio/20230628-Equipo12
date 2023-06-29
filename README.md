@@ -1,3 +1,3 @@
-# EQUIPO 12
+#-Paula Carrillo
+:grinning:
 
-Ana Cecilia Toribio-Santiago Castillo-Marilin Huaisara Bautista-Jose Armando Carbajal Salgado- Jorge Luis Monzon Morales-Paula Carrillo
