@@ -1,5 +1,3 @@
 # EQUIPO 12
 
-Ana Cecilia Toribio
-Santiago Castillo
-Marilin Huaisara Bautista
+Ana Cecilia Toribio-Santiago Castillo-Marilin Huaisara Bautista-Jose Armando Carbajal Salgado-
